@@ -1,2 +1,2 @@
 # 1
-IPHONE 5S
+IPHONE 6S
